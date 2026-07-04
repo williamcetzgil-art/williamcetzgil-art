@@ -12,3 +12,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 soy william es mi tercer intento
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRHGbFWgghnwiwNewPrX8yEF0Uhgsn7PkzmMr9VGXKisg&s=10
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRInclkpCZPmV6lbHDPUzFs-TcaA3wfkTMSOJ6wPVwn-kjiW3lFHt03QVQ0&s=10
+
